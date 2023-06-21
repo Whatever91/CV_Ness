@@ -6,4 +6,4 @@
 ## E-mail- ness91ss@gmail.com
 
 
-! (C:\Users\liss2\OneDrive\Рабочий стол\CV_Ness\img\MEV_5588.jpg)
+!(C:\Users\liss2\OneDrive\Рабочий стол\CV_Ness\img\MEV_5588.jpg)
